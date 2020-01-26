@@ -1,0 +1,2 @@
+# fitNfab
+fitNfab aims to make you fitter &amp;amp; healthier person by providing a single membership to almost all gym/fitness studios in your city. This app emphasizes on making workouts interesting and flexible and to make fitness easily accessible anytime &amp;amp; anywhere. This would attract business person who travels and does not want to miss workouts. This would hit in younger generation where choices would be widely opened. Community activities and events can be organised. It introduces a person to community.
